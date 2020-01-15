@@ -1,0 +1,1 @@
+Publication: http://interproftiuii.blogspot.com/2016/06/project-management-challenge-2016.html
